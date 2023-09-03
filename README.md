@@ -23,5 +23,3 @@ A developer from EARTH ONLINE 🌏 ;
 <br>
 ⢑⢕⠃⡈⢿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⢃⢕⢕⢕
 <br>
-### Favourite ⚽ football player - ``Kevin De Bruyne`` 😺  
-<img src="https://img1.imgtp.com/2023/08/28/F2ui1XQf.jpg" />
